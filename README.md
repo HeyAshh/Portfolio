@@ -1,1 +1,1 @@
-Filew for (Ashh.me)[ashh.me]
+Filew for [Ashh.me](ashh.me)
